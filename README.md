@@ -1,4 +1,4 @@
-[![GitHub Logo](https://graph.org//file/3ad2426f5e138cb0bf0d5.jpg)](https://github.com/robotchickn1/Robot-Chickn)
+Hii, there! My name is Rishik R. I am currently a Physics Masters student at SSSIHL. Cheers.
 
 ## Contact & Socials :
 
